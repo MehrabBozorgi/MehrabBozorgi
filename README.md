@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **mehrabbozorgi.business@gmail.com**
 
-- 📄 Know about my experiences [www.mehrabbozorgi.ir](www.mehrabbozorgi.ir)
+- 📄 Know about my experiences [https://www.mehrabbozorgi.ir/#/](www.mehrabbozorgi.ir)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
